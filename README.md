@@ -10,6 +10,12 @@
 
 ### Задание 2
 
+<img width="847" height="519" alt="Screenshot 2026-04-01 at 23 43 17" src="https://github.com/user-attachments/assets/3356cbe5-dd6b-40fc-8954-0401537a86dd" />
+
+<img width="441" height="708" alt="Screenshot 2026-04-01 at 23 44 45" src="https://github.com/user-attachments/assets/4041443d-359e-4373-8580-d74a8dfd052f" />
+
+<img width="377" height="117" alt="Screenshot 2026-04-01 at 23 45 16" src="https://github.com/user-attachments/assets/bb46dec3-6194-428f-8bad-ff0419c27d2e" />
+
 
 ---
 
